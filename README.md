@@ -1,0 +1,1 @@
+# FUCK-U-CODE-AI
